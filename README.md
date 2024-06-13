@@ -9,3 +9,5 @@ _Meu nome é Rihanne_
 ## Você pode entrar em contato comigo📫
 > [!note]
 > ***Come soon***
+
+![](https://media1.tenor.com/m/RUGGdovmONkAAAAd/dance-dancing.gif)
